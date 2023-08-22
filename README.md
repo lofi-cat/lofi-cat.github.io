@@ -1,1 +1,1 @@
-# lofi-cat.github.io
+# Estigueu atents perquè molt aviat hi haurà novetats!
